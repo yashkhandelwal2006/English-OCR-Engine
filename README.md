@@ -1,1 +1,2 @@
 # English-OCR-Engine
+MJHRVKFS CNKGNIE4RUG
